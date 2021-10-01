@@ -1,3 +1,0 @@
-# bio-presentation
-about overharvestation
-
